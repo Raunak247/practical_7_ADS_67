@@ -1,0 +1,1 @@
+# practical_7_ADS_67
